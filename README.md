@@ -1,2 +1,5 @@
-# new
-New
+# PokeDex-2.0
+
+SUBSCRIBE MY CHANNEL! OR DIE!!
+
+### Made by [GAMING DUDES]
